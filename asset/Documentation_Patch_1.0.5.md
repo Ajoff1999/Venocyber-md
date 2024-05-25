@@ -1,4 +1,4 @@
-# PATCH VENOCYBER ᴍᴅ ᴜᴘᴅᴀᴛᴇ 𝟷.𝟶.𝟻 ᴘᴀᴛᴄʜ
+# PATCH 𝐆𝐀𝐔𝐅𝐑𝐈𝐃𝐔𝐒 ᴍᴅ ᴜᴘᴅᴀᴛᴇ 𝟷.𝟶.𝟻 ᴘᴀᴛᴄʜ
 ### ᴡʜᴀᴛ's ɴᴇᴡ?
 -----------------------------------
 1. *Session ID Not Connecting Error Fixed*
