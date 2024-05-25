@@ -185,7 +185,7 @@ Then `Go-to Whatapp>Three dots>Linked Devices`***
 <h1>💗</h1> 
 <b>Thanks For</b> -
 
- [𝙶𝚊𝚞𝚏𝚛𝚒𝚍𝚞𝚜 🗽](https://wa.me/message/MSSH2UWWOQBDL1) for Voice ,[cecilia](https://youtu.be/1wNVPsZ98Mo?si=jZSXgdBRyA00kjKl) , [he.is.me](http://github.com/𝙶𝚊𝚞𝚏𝚛𝚒𝚍𝚞𝚜tech) , [Itxxwasi](https://wa.me/message/THZ3I25BYZM2E1) , [𝘎𝘪𝘧𝘵𝘦𝘥 𝘵𝘦𝘤𝘩](https://wa.me/message/NHCZC5DSOEUXB1) and [officialchuimsela](https://wa.me/+254115928847
+ [𝙶𝚊𝚞𝚏𝚛𝚒𝚍𝚞𝚜 🗽](https://wa.me/message/MSSH2UWWOQBDL1) for Voice ,[cecilia](https://youtu.be/1wNVPsZ98Mo?si=jZSXgdBRyA00kjKl) , [he.is.me](http://github.com/𝙶𝚊𝚞𝚏𝚛𝚒𝚍𝚞𝚜tech) , [Itxxwasi](https://wa.me/message/THZ3I25BYZM2E1) , [𝘎𝘪𝘧𝘵𝘦𝘥 𝘵𝘦𝘤𝘩](https://wa.me/message/NHCZC5DSOEUXB1) and [officialchuimsela](https://wa.me/+254115928846
  6) thanks for helps 💖
 
  ## [ WHATSAPP GROUPS ](https://chat.whatsapp.com/HSln3blDuuuKvC8njxyCCN)
